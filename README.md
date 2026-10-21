@@ -72,7 +72,7 @@
 <p align="center">
  <img src="https://github.com/user-attachments/assets/caab8398-7db4-4dbf-bd9a-4470a148d6e0"/>
 
-> *"They called me Pasha."*
+> *"Deeply I grieve, as I witness how you wallow in misunderstandings and wither away.”*
 
 <p align="center">
 ⋆｡°✩
