@@ -37,7 +37,7 @@
     
     Liu Xiao has the same personality type as me and we almost share birthdays. His being December 10th, and mine being December 11th.
     
-* I also kin Zhongli and Dan Feng.
+* I kin Zhongli and Dan Feng.
 * **Yume Characters:** Vedrfolnir (Genshin Impact) with my OC Song Feng. Tragodia (Arknights) or Logos (Arknights) with my OC Perish.
 * **Ships that I’m okay to interact with:** This doesn’t mean if I’m sitting with someone as these two characters that it implies a ship interaction.
 <p align=center>
